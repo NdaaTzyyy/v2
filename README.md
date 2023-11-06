@@ -1,0 +1,1 @@
+# subscribe dong, biar aktif lagi post sc bot ☝🏻😓
